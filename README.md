@@ -1,0 +1,1 @@
+# suclu_tespiti
